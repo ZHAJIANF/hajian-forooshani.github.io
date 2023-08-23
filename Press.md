@@ -1,7 +1,5 @@
 ## Press outputs
 
-
-
 ### Insights from excrement: invasive gastropods shift diet to consume the coffee leaf rust and its mycoparasite
 Climate change and researchers from [YCL](https://youtu.be/LAg2nEbgleQ) (PT)
 
