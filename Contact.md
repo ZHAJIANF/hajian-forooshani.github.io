@@ -5,9 +5,9 @@
 hossdaniela.github.io/."  align="right" width="340">
 
 ### Email: 
-daniela.hoss [at] idiv.de
+zachary.hajian-forooshani [at] idiv.de
 
-Feel free to get in touch!
+Only get in touch if very important!
 
 
 
